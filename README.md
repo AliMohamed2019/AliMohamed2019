@@ -29,7 +29,7 @@ I enjoy writing clean code, mentoring junior developers, and staying up to date 
 ## 🤝 Let's Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/ali-mohamed-59989318b)
-- 📧 ali.mohamed@example.com *(replace with your real email)*
+- 📧 alimohamed2019@gmail.com
 
 ---
 
